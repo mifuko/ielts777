@@ -1,6 +1,6 @@
-![[Pasted image 20231017115011.png]]
+[![piPdF0J.png](https://z1.ax1x.com/2023/10/18/piPdF0J.png)](https://imgse.com/i/piPdF0J)
 
-![[Pasted image 20231017115141.png]]
+[![piPdEkR.md.png](https://z1.ax1x.com/2023/10/18/piPdEkR.md.png)](https://imgse.com/i/piPdEkR)
 
 工序图：被动，一般现在
 生长图：主动，一般现在
