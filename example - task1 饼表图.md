@@ -1,5 +1,4 @@
-![[Pasted image 20231017112215.png]]
-
+[![piPdk79.md.png](https://z1.ax1x.com/2023/10/18/piPdk79.md.png)](https://imgse.com/i/piPdk79)
 
 - rewrite
 
