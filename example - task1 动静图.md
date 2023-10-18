@@ -1,6 +1,4 @@
-![[Pasted image 20231017111837.png]]
-
- 
+[![piPdim4.md.png](https://z1.ax1x.com/2023/10/18/piPdim4.md.png)](https://imgse.com/i/piPdim4)
 
 - rewrite
 
