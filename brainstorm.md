@@ -36,4 +36,20 @@ Write at least 250 words.
 0 although buy the same products easy but without culture characteristic
 
 
+# 比较
 
+Many museums charge for admission while others are free.
+Do you think the advantages of charging people for admission to museums outweigh the disadvantages?
+Give reasons for your answer and include any relevant examples from your own knowledge or experience.
+Write at least 250 words.
+
+1 disadvantages, erecte barrier for public visit, people will consider is it worthy, eg:children dont have money, especially those from deprived background
+
+2 disadvantages, lose appoach to see collection from a close diatance, lose the chance to feel cultural influence
+
+3 advantage overweight disadvantage, control the number of vistors, provide pleasant experience
+
+0 although charge allows quiet and pleasant experience for some people, keep more people outisde
+
+
+#
