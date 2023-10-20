@@ -81,4 +81,23 @@ Write at least 250 words.
 1 law, be obliged to recycle, develop a stronger sense of recycling
 
 
-#
+# 观点
+
+Today, the high sales of popular consumer goods reflect the power of advertising and not the real needs of the society in which they are sold.
+To what extent do you agree or disagree?
+
+Give reasons for your answer and include any relevant examples from your own knowledge or experience.
+You should write at least 250 words.
+
+
+1 power of advertising, everywhere with incluencer or star, encourage material desire 
+
+2 producers not only exaggrated desire but also create fake necceessity, eg:cosmetics, advertisement create a certian atmosphere that everyone is make-up, not really want, but be made to consider they want
+
+3 especially advertisement on social media, buy things to have connections and topic with otheres, add social quality on products
+
+0 reflects the erosion of consumerism, I think detrimental, people should keen on spritual building enrich mental world
+
+
+
+
